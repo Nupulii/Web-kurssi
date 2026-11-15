@@ -1,0 +1,1 @@
+En ollut varma miten aloittaa tehtävän tekeminen joten käytin Ai:ta alotuksen saamiseksi. 
