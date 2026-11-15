@@ -1,1 +1,1 @@
-Tummanvihreä, kermanvalkoinen ja sinapinkeltainen tuovat metsäistä ja puhdasta tunnelmaa.gi
+Tummanvihreä, kermanvalkoinen ja sinapinkeltainen tuovat työtilamaista tunnelmaa.
